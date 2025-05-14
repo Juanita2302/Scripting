@@ -3,4 +3,4 @@ Luciana Gutierrez
 David Galvis
 Juanita Palacio
 
-https://drive.google.com/file/d/1CKotRaL3YqB_it4jzrKcRO-N1Ju6f8Eg/view?usp=sharing
+https://drive.google.com/drive/folders/1Qatj5dEbKAy9AYMmwW2_0P6b2iGZ5ogE?usp=sharing
